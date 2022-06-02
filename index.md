@@ -3,7 +3,7 @@ layout: default
 ---
 
 
-# El Dino Truck Trippo
+# El Diño Truck Trippo
 
 Gitting rdy!
 
