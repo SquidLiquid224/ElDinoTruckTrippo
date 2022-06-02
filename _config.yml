@@ -1,5 +1,10 @@
 title: El Dino Truck Trippo
 description: A blog of my holiday travels 
-show_downloads: true
 google_analytics:
 theme: jekyll-theme-cayman
+
+markdown: kramdown
+permalink: /articles/:title
+
+plugins:
+  - jekyll-feed
