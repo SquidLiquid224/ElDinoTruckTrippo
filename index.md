@@ -3,7 +3,7 @@ layout: default
 ---
 
 
-# El Diño TruckTrippo
+# TruckTrippo
 
 Gitting rdy!
 
