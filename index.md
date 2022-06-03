@@ -5,7 +5,7 @@ layout: default
 # Truck Trippo!
 ## Gitting rdy
 
-Next week marks the start of my summer holidays! I’m planning on hitting the road in my truck where I’ve converted the back into a camper.  I added the “po” to the end of “trip” to make Trippo, mostly because my truck reminds me of a hippo.  Depicted in the image below:
+Next week marks the start of my summer holidays! I’m planning on hitting the road in my truck where I’ve converted the back into a camper.  So I've started a blog on my Github hence the Gitting rdy in the title of this post. I've added the “po” to the end of “trip” to make Trippo, mostly because my truck reminds me of a hippo.  Depicted in the image below:
 <p align="center">
 <img src="./images/truckTrippo.jpg">
   <br>
