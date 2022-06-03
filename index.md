@@ -9,7 +9,7 @@ Next week marks the start of my summer holidays! I’m planning on hitting the r
 <p align="center">
 <img src="./images/truckTrippo.jpg">
   <br>
-<p align="left">
+<div style="text-align: left">
 Nevertheless (is a neat word) I'm going to keep a daily journal of my travels. Check back for more posts about silly oberservations and doodles, maybe some pictures.  For now I will leave you with this piece of historical Canadian cinematography.
 <br>
 <https://youtu.be/0p8oeiVDcx4>
