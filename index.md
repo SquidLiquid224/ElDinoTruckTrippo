@@ -2,7 +2,7 @@
 layout: default
 ---
 
-The Truck Trippo!
+#The Truck Trippo!
 
 ## Gitting rdy!
 
