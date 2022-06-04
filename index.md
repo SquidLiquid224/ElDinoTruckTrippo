@@ -14,5 +14,5 @@ Nevertheless (is a neat word) I'm going to keep a daily journal of my travels. C
 </div>
 <a href="https://youtu.be/0p8oeiVDcx4" target="_blank">The Littlest Hobo Intro</a>  
 <hr /> 
-
+## Water Bazooka!.. or portable shower
   
