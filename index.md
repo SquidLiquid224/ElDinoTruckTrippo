@@ -12,6 +12,7 @@ Next week marks the start of my summer holidays! I’m planning on hitting the r
 <div style="text-align: left">
 Nevertheless (is a neat word) I'm going to keep a daily journal of my travels. Check back for more posts about silly oberservations and doodles, maybe some pictures.  For now I will leave you with this piece of historical Canadian cinematography.
 </div>
-<a href="https://youtu.be/0p8oeiVDcx4" target="_blank">The Littlest Hobo Intro</a>
+<a href="https://youtu.be/0p8oeiVDcx4" target="_blank">The Littlest Hobo Intro</a>  
+<hr /> 
 
   
