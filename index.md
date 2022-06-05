@@ -26,6 +26,6 @@ So I made the ultimate Supersoaker water bazooka!  That can also be used as a po
 <img src="./images/waterBazooka.jpg">
 <br>
 <div style="text-align: left">
-I've never experimented with plumbing, it was fun sticking little tubes together.  The dude at the plumbing store was super helpful with my wack McGuyver water tank.  Kudos to that dude.  Next up I'm finishing up the cap, hopefully tomorrow I can get it put back together.  
+I've never experimented with plumbing, it was fun sticking little tubes together.  The dude at the plumbing store was super helpful with my wack McGuyver water tank.  Kudos to that dude.  Next up I'm finishing up the truck box cap, hopefully tomorrow I can get it put back together.  
 </div>
 <hr /> 
