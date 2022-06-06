@@ -47,7 +47,7 @@ My holidays have officially started and my glamping outfit for my truck is nearl
   <br>
 I started work back in January on this project, pulling together camping gear and sketching out plans.. Most of which did not get built but it was fun to draw them up.  My laptop died randomly two nights ago so they might be lost in the abyss of the computer forever.  
   <br>
-Although, I did manage to really clean up my truck cap.  It was way more work than I anticipated.. it was so leaky, the fiberglass was old and mold, Rusty everything.. bugs.. all the bad camping stuff.  After many trips to the hardware store and a lot of late nights in the shop it almost done!  Here is a picture of my mom putting in the custom curtains, we had a great time picking the fabric out at the fabric store.  
+Although, I did manage to really clean up my truck cap.  It was way more work than I anticipated.. it was so leaky, the fiberglass was old and mold, Rusty everything.. bugs.. all the bad camping stuff.  After many trips to the hardware store and a lot of late nights in the shop its almost done!  Here is a picture of my mom putting in the custom curtains, we had a great time picking the fabric out at the fabric store.  
 <p align="center">
 <img src="./images/customCurtains.jpg">
 <br>
