@@ -32,7 +32,7 @@ I've never experimented with plumbing, it was fun sticking little tubes together
 <h2>Rainy Groundhog Sunday</h2>  
   2022-06-05  
 <p align="center">
-<img src="./images/groundHog.jpg">
+<img src="./images/groundhog.jpg">
 <div style="text-align: left">
 Well, today was one of those rainy groundhog Sundays.  I just kept thinking about lost loves.  It’s hard to stay positive sometimes, everything has shifted so much and I can’t help but blame myself.   
 I decided to go for a run to let go of some frustrations; I find running is almost meditative now.  I closed my eyes for a couple minutes after the run and focused on catching my breath.  When I opened then there was a ground hog standing up on the break wall by the water.  Nature always seems to happen when there is silence. 
