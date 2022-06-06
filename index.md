@@ -35,6 +35,26 @@ I've never experimented with plumbing, it was fun sticking little tubes together
 <img src="./images/groundhog.jpg">
 <div style="text-align: left">
 Well, today was one of those rainy groundhog Sundays.  I just kept thinking about lost loves.  It’s hard to stay positive sometimes, everything has shifted so much and I can’t help but blame myself.   
+<br>
 I decided to go for a run to let go of some frustrations; I find running is almost meditative now.  I closed my eyes for a couple minutes after the run and focused on catching my breath.  When I opened then there was a ground hog standing up on the break wall by the water.  Nature always seems to happen when there is silence. 
 </div>
 <hr />
+
+<h2>Custom Curtains!</h2>  
+  2022-06-06  
+<div style="text-align: left">
+My holidays have officially started and my glamping outfit for my truck is nearly complete! Almost on schedule.  Well the nice part about traveling this way is that there is no schedule.   
+  <br>
+I started work back in January on this project, pulling together camping gear and sketching out plans.. Most of which did not get built but it was fun to draw them up.  My laptop died randomly two nights ago so they might be lost in the abyss of the computer forever.  
+  <br>
+Although, I did manage to really clean up my truck cap.  It was way more work than I anticipated.. it was so leaky, the fiberglass was old and mold, Rusty everything.. bugs.. all the bad camping stuff.  After many trips to the hardware store and a lot of late nights in the shop it almost done!  Here is a picture of my mom putting in the custom curtains, we had a great time picking the fabric out at the fabric store.  
+<p align="center">
+<img src="./images/customCurtains.jpg">
+<br>
+<div style="text-align: left">
+Tomorrow I might ba able to get this cap back on my truck and hit the road.. where I'll go I don't know, probably north.
+</div>
+<hr />
+
+
+
