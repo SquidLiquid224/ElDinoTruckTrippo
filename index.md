@@ -28,4 +28,13 @@ So I made the ultimate Supersoaker water bazooka!  That can also be used as a po
 <div style="text-align: left">
 I've never experimented with plumbing, it was fun sticking little tubes together.  The dude at the plumbing store was super helpful with my wack McGuyver water tank.  Kudos to that dude.  Next up I'm finishing up the truck box cap, hopefully tomorrow I can get it put back together.  
 </div>
-<hr /> 
+<hr />  
+<h2>Rainy Groundhog Sunday</h2>  
+  2022-06-05  
+<p align="center">
+<img src="./images/groundHog.jpg">
+<div style="text-align: left">
+Well, today was one of those rainy groundhog Sundays.  I just kept thinking about lost loves.  It’s hard to stay positive sometimes, everything has shifted so much and I can’t help but blame myself.   
+I decided to go for a run to let go of some frustrations; I find running is almost meditative now.  I closed my eyes for a couple minutes after the run and focused on catching my breath.  When I opened then there was a ground hog standing up on the break wall by the water.  Nature always seems to happen when there is silence. 
+</div>
+<hr />
