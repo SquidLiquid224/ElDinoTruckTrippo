@@ -52,7 +52,7 @@ Although, I did manage to really clean up my truck cap.  It was way more work th
 <img src="./images/customCurtains.jpg">
 <br>
 <div style="text-align: left">
-Tomorrow I might ba able to get this cap back on my truck and hit the road.. where I'll go I don't know, probably north.
+Tomorrow I might ba able to get this cap back on my truck and hit the road.. where I'll go I don't know, probably north and see where the road takes me.
 </div>
 <hr />
 
