@@ -64,7 +64,7 @@ The starter and my battery died one February night.. Glad I had my portable batt
 <br>
 The breaks completely exploded haha.. I just made it to the shop.  Driving a big old truck with no breaks is a bit wacky. 
 <br>
-One time I’ll never forget, I had some company from a friend for part of it.  
+One time I’ll never forget, I had some company from a friend for part of it. I guess luck was on my side there. 
 <br>
 It was actually fun breaking out of the normal and acting like a hobo, something to look forward to or prepare for.
 <br>
