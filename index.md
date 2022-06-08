@@ -55,6 +55,24 @@ Although, I did manage to really clean up my truck cap.  It was way more work th
 Tomorrow I might ba able to get this cap back on my truck and hit the road.. where I'll go I don't know, probably north and see where the road takes me.
 </div>
 <hr />
+<h2>HighFive!</h2>  
+  2022-06-07  
+<p align="center">
+Another rainy day but it looks like the sun is breaking through.  Tomorrow is supposed to be nice and planning on finally getting my camp set up together.  I’ve been camping out once a week since February, I only missed a couple weeks because my truck was in the shop getting the break repaired.  Why? You may ask...  I guess for the most part just because the commute is bonkers to work and staying over broke up the week a bit.  But also in preparation for a road trip.  I wanted to make sure that I wouldn’t be out of luck on the road.. Wow, there was some out of luck on the road already.. glad I was close to home.  
+<br>
+The starter and my battery died one February night.. Glad I had my portable battery pack and heat blanket. Only negative 20… walk in the park. 
+<br>
+The breaks completely exploded haha.. I just made it to the shop.  Driving a big old truck with no breaks is a bit wacky. 
+<br>
+One time I’ll never forget, I had some company from a friend for part of it.  
+<br>
+It was actually fun breaking out of the normal and acting like a hobo, something to look forward to or prepare for.
+<br>
+Well I’ll leave you with this sketch of my hand. Sometimes I get all existential crisis mode and start looking at my hands (Please don’t judge) Well this time I drew one of them.  Maybe I’ll keep doing it over my holidays. I could use the life drawing, it always seems to defragment the mind. 
+</div>
+<p align="center">
+<img src="./images/hand.jpg">
+<hr />
 
 
 
