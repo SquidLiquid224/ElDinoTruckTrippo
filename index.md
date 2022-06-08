@@ -57,7 +57,7 @@ Tomorrow I might ba able to get this cap back on my truck and hit the road.. whe
 <hr />
 <h2>HighFive!</h2>  
   2022-06-07  
-<p align="center">
+<div style="text-align: left">
 Another rainy day but it looks like the sun is breaking through.  Tomorrow is supposed to be nice and planning on finally getting my camp set up together.  I’ve been camping out once a week since February, I only missed a couple weeks because my truck was in the shop getting the break repaired.  Why? You may ask...  I guess for the most part just because the commute is bonkers to work and staying over broke up the week a bit.  But also in preparation for a road trip.  I wanted to make sure that I wouldn’t be out of luck on the road.. Wow, there was some out of luck on the road already.. glad I was close to home.  
 <br>
 The starter and my battery died one February night.. Glad I had my portable battery pack and heat blanket. Only negative 20… walk in the park. 
