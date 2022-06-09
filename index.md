@@ -73,14 +73,14 @@ Well I’ll leave you with this sketch of my hand. Sometimes I get all existenti
 <p align="center">
 <img src="./images/hand.jpg">
 <hr />
-<h2>Truck hippo likes the rain</h2>  
+<h2>Hippo truck likes the rain</h2>  
   2022-06-08  
 <p align="center">
 <img src="./images/rainytruckhippo.jpg">
 <div style="text-align: left">
 The cap is on the truck! Thank you to my friend Bryan, my Bro and Dad for moving that heavy thing.  We only almost dropped once haha.  
 <br>
-It’s a rainy night tonight so it will be a good test to see if its water proof.  It was not water proof before. I think it was wetter inside then outside.  Is “wetter” a word? I’ve never used it before.  Fingers crossed its nice and dry and good thing truck hippos like the rain. 
+It’s a rainy night tonight so it will be a good test to see if its water proof.  It was not water proof before. I think it was wetter inside then outside.  Is “wetter” a word? I’ve never used it before.  Fingers crossed its nice and dry and good thing hippo truck likes the rain. 
 </div>
 <hr />
 
