@@ -82,7 +82,7 @@ The cap is on the truck! Thank-you to my friend Bryan, my Bro and Dad for moving
 <br>
 It’s a rainy night tonight so it will be a good test to see if its water proof.  It was not water proof before. I think it was wetter inside then outside.  Is “wetter” a word? I’ve never used it before.  Fingers crossed its nice and dry and good thing hippo truck likes the rain. 
 <br>
-Thurdays Morning update -- extra dry under the cap woohoo!
+Thurdays morning update -- extra dry under the cap woohoo!
 </div>
 <hr />
 
