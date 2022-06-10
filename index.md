@@ -85,6 +85,23 @@ It’s a rainy night tonight so it will be a good test to see if its water proof
 Thurdays morning update -- extra dry under the cap woohoo!
 </div>
 <hr />
+<h2>Adventure time is near..</h2>  
+  2022-06-09  
+<div style="text-align: left">
+I’m excited, nervous and in a way questioning “why” I’m doing this in the first place.  It has always been a dream of mine to travel across Canada.  One summer I took the train out to Halifax in the hopes to travel all the way to BC.  Due to zero planning I just ended up staying in Halifax for a while and going to Montreal for a week or two. Anyways, it was an awesome experience and I met so many people.  That trip was more of an escape for me, I wanted to see some of the world and be Independent.  
+<br>
+This trip is different, I’m not trying to escape and being Independent is normal for me.  I started thinking about this trip probably close to a year ago, I was seeing a women that was moving out west and I thought it would be great to truck across and go too.  The distance was hard and as time moved on, so did we.  Part of me still wants to make it out to BC and see her again, but those are some far out dreams.
+<br>
+Although, I still kept dreaming about the trip and wondering, why? Is this for the experience, the memories? That would make this for myself.  I want to make the trip more, something I can share with people and possibly help people who want to travel across Canada too.  Or maybe just read about it and have a good time.  Anyways, that’s why I started a blog  
+<br>
+I should probably just stop thinking about it so much and just do it, see where the road takes me.  Without a knowing exactly where I’m going, it will be hard to take the wrong road.  It’s like real life haha.
+<br>
+I managed to get my gear all back together today before the thunder rolled in and tested it out.  Check it out! I’m pretty proud of my little truck camping setup. 
+</div>
+<p align="center">
+<img src="./images/int01.jpg">
+<img src="./images/int02.jpg">
+<hr />
 
 
 
